@@ -1,0 +1,1 @@
+# 8sinif-tc-inkilap-tar-ve-ataturk-tamamlama-testi-32
